@@ -1,2 +1,0 @@
-# FitSpresso-Reviews
-FitSpresso Reviews
